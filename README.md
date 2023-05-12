@@ -1,6 +1,6 @@
    ### Olá, me chamo Luana Paulino! 
   
-  - Cursando 3º semestre em Análise e desenvolvimento de sistemas.👩🏻‍💻
+  - Cursando 4º semestre em Análise e desenvolvimento de sistemas.👩🏻‍💻
   - one day at a time ☀️
 
 
